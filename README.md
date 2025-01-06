@@ -1,8 +1,8 @@
-# 新髪靈Duprost (度他雄胺Dutasteride) – 0.5mg 超強口服類 100粒[香港代購(https://haircores.com/)
+# 新髪靈Duprost (度他雄胺Dutasteride) – 0.5mg 超強口服類 100粒  [香港代購](https://haircores.com/)
 
 網站：https://haircores.com/
 
-Duprost膠囊0.5mg含有度他雄胺，用於治療良性前列腺增生（BPH或前列腺肥大）和男性型禿髮。 Duprost 膠囊 0.5 毫克透過抑制雄性激素二氫睪酮 (DHT) 的形成發揮作用，這種激素會導致前列腺肥大和脫髮。
+[Duprost膠囊0.5mg含有度他雄胺](https://haircores.com/product/%e6%96%b0%e9%ab%aa%e9%9d%88duprost-%e5%ba%a6%e4%bb%96%e9%9b%84%e8%83%badutasteride-0-5mg-%e8%b6%85%e5%bc%b7%e5%8f%a3%e6%9c%8d%e9%a1%9e-100%e7%b2%92%e4%bb%a3%e8%b3%bc/)，用於治療良性前列腺增生（BPH或前列腺肥大）和男性型禿髮。 Duprost 膠囊 0.5 毫克透過抑制雄性激素二氫睪酮 (DHT) 的形成發揮作用，這種激素會導致前列腺肥大和脫髮。
 
 Duprost有什麼用途？
 
